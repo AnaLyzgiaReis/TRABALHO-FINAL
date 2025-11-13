@@ -1,3 +1,0 @@
-Link Figma:
-
-Link Site:
